@@ -1,6 +1,6 @@
-# THE WEALTH OF NATIONS I - IX
+# THE PICTURE OF DORIAN GRAY
 
-ADAM SMITH
+OSCAR WILDЕ
 
 This ebook is the product of many hours of hard work by volunteers for Standard Ebooks, and builds on the hard work of other literature lovers made possible by the public domain.
 
